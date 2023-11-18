@@ -1,0 +1,5 @@
+- Hi, I’m @ajkw2
+- I’m interested in you(r code)
+- I’m currently learning how to steal (your code)
+- I’m looking to collaborate on nothing
+- How to reach me: I'm in your walls
